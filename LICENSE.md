@@ -1,4 +1,4 @@
-#  
+#  Experience blade ball like never before with blade ball exclusive Script, the #1 Script. Includes invisibility and god mode for unbeatable
 
 
 
